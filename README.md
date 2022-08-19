@@ -1,1 +1,0 @@
-# bsclaundry_privacy_policy
